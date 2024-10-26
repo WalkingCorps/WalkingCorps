@@ -1,5 +1,5 @@
 - 👋 Hi, I’m David!
-- 👀 I’m interested in any fandom!!
+- 👀 I’m interested in any fandom!! unless the fanon one,, i like the canon better
 - 🌱 I’m currently learning russian, german, philippines languages
 - 💞️ I’m looking to collaborate on no one 😊
 - 📫 How to reach me: you cant.
