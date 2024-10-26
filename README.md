@@ -6,4 +6,4 @@
 - 😄 Pronouns: he/him ofc
 - ⚡ Fun fact: i actually have another account :3
 - 💖 things that i like: cuddling with a stranger unless someone who is definitely new and ugly.
-- 😠 things that i hate: noobies.
+- 😠 things that i hate: noobies. literally a person that become nonsense for no reason
