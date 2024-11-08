@@ -1,9 +1,9 @@
 - 👋 Hi, I’m David!
 - 👀 I’m interested in any fandom!! unless the fanon one,, i like the canon better
 - 🌱 I’m currently learning russian, german, philippines languages
-- 💞️ I’m looking to collaborate on no one 😊
+- 💞️ Taken 😊
 - 📫 How to reach me: you cant.
 - 😄 Pronouns: he/him ofc
 - ⚡ Fun fact: i actually have another account :3
-- 💖 things that i like: cuddling with a stranger unless someone who is definitely new and ugly.
+- 💖 things that i like: cuddling with a stranger unless someone who is definitely new.
 - 😠 things that i hate: noobies. literally a person that become nonsense for no reason
