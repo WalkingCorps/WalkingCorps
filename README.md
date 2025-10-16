@@ -1,3 +1,1 @@
-- 👋 Hi, I’m David!
-- 👀 I’m interested in any fandom!!
-- 😄 Pronouns: He/Him
+
