@@ -3,6 +3,14 @@ have you no pride 💔👹🍍<img width="720" height="610" alt="1000114121" src
 
 DNI / IWEC
 
--i hate shippers that ship mlm just because they like 'yaoi'. WHEN THE PERSON clearly likes someone else.
+-i hate shippers that ship mlm just because they like 'yaoi'. WHEN the other guy clearly doesn't have any feelings for the second guy 
 
-[WIP]
+-problematic ppl. ex: sh
+
+-underage person. under 16
+
+-----------
+🍍 🍍 🍍 🍍 🍍 🍍 🍍 🍍 🍍 🍍 🍍 🍍
+🍍 🍍 🍍 🍍 🍍 🍍 🍍 🍍 🍍 🍍 🍍 🍍
+-----------
+
