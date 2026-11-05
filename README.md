@@ -14,3 +14,9 @@ DNI / IWEC
 🍍 🍍 🍍 🍍 🍍 🍍 🍍 🍍 🍍 🍍 🍍 🍍
 -----------
 
+SHIPS I LIKE 
+
+-i mostly doesn't ship much of any of my characters, but, i love any ship that's canon. ex: purelily, burningmogra
+
+SHIPS I DESPISE/DISLIKE
+
