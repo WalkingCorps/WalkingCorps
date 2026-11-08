@@ -18,5 +18,10 @@ SHIPS I LIKE
 
 -i mostly doesn't ship much of any of my characters, but, i love any ship that's canon. ex: purelily, burningmogra
 
+-shadow milk cookie selfcest. ex: shadowfount
+
 SHIPS I DESPISE/DISLIKE
 
+-'shadowvanilla' I DON'T LIKE SEEING THOSE SHIPS that i get so overwhelmed.
+
+mostly that.
