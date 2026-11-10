@@ -25,3 +25,13 @@ SHIPS I DESPISE/DISLIKE
 -'shadowvanilla' I DON'T LIKE SEEING THOSE SHIPS that i get so overwhelmed.
 
 mostly that.
+
+----------
+
+more info about me:
+
+i am a bpd person. instant mood swings. hypocrite. easily get angered.
+
+and im sorry about that. i just can't control this emotions.
+
+respectfully ask me to iwc, im also quite sensitive person myself. 🍍
