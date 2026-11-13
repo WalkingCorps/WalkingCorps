@@ -37,3 +37,5 @@ and im sorry about that. i just can't control this emotions.
 respectfully ask me to iwc, im also quite sensitive person myself. 🍍
 
 please, if you want to int with me. do so, i dont mind at all! just, w2i. im w2i type of person mhm
+
+im a fast respond toooo! 
