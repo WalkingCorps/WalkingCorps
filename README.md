@@ -40,3 +40,4 @@ please, if you want to int with me. do so, i dont mind at all! just, w2i. im w2i
 
 im a fast respond toooo! 
 
+![visitors](https://visitor-badge.laobi.icu/badge?page_id=username.visitor-badge&left_text=Pineapples&left_color=%23a5ad00&right_color=%23129c00&query_only=true)
