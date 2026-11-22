@@ -39,3 +39,5 @@ respectfully ask me to iwc, im also quite sensitive person myself. 🍍
 please, if you want to int with me. do so, i dont mind at all! just, w2i. im w2i type of person mhm
 
 im a fast respond toooo! 
+
+![visitors](https://visitor-badge.laobi.icu/badge?page_id=username.visitor-badge&left_text=Pineapples%20%F0%9F%8D%8D&left_color=%23b8ae21)
