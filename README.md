@@ -40,4 +40,5 @@ please, if you want to int with me. do so, i dont mind at all! just, w2i. im w2i
 
 im a fast respond toooo! 
 
-![visitors](https://visitor-badge.laobi.icu/badge?page_id=username.visitor-badge&left_text=Pineapples&left_color=%23a5ad00&right_color=%23129c00&query_only=true)
+
+![visitors](https://visitor-badge.laobi.icu/badge?page_id=https%3A%2F%2Fgithub.com%2FWalkingCorps&left_text=Pineapples%20!!!%20%F0%9F%8D%8D&left_color=%23918800&right_color=%2300b30f)
