@@ -47,4 +47,5 @@ im a fast respond toooo!
 > i love you my friends
 
 **one thing you should know**
+
 even if i may appear with dni or iwec (always whenever im not in mood or sad) please do c+h with me. its always encouraged. i love it when strangers/people i dont know cuddles with me.
