@@ -44,4 +44,7 @@ im a fast respond toooo!
 ![visitors](https://visitor-badge.laobi.icu/badge?page_id=https%3A%2F%2Fgithub.com%2FWalkingCorps&left_text=Pineapples%20!!!%20%F0%9F%8D%8D&left_color=%23918800&right_color=%2300b30f)
 
 
-> i love you my friends 
+> i love you my friends
+
+**one thing you should know**
+even if i may appear with dni or iwec (always whenever im not in mood or sad) please do c+h with me. its always encouraged. i love it when strangers/people i dont know cuddles with me.
